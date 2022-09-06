@@ -1,1 +1,1 @@
-# rsschool-cv
+https://shevastest.github.io/rsschool-cv/
